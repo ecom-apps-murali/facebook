@@ -1,3 +1,0 @@
-ggfsesnhvhtndz bjkhjmn bvfdssxb,
-
-	       gdffzjfhfffsfzgzzvvgnghcnfgxfxj
